@@ -1,7 +1,7 @@
-# 天天视频最新网址 (2024.08.18 UPDATED)
-# 【地址01】：https://ttsp10.cc
-# 【地址02】：https://ttsp11.cc
-# 【地址03】：https://ttsp12.cc
+# 天天视频最新网址 (2024.12.6 UPDATED)
+# 【地址01】：https://ttsp41.cc
+# 【地址02】：https://ttsp42.cc
+# 【地址03】：https://ttsp43.cc
 
 天天视频永久地址：ttsp.tw
 
